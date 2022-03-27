@@ -1,0 +1,2 @@
+# Uzzal-
+If you're looking for the perfect, unique, modern, creative and minimalist logo design, you've come to the right place.     I am a graphic designer with 06 years of experience in logo and branding. During this period, I have been offering my services through Fiverr for the last 6 years. My passion is minimalist logos.     Initially, I will create several minimalist logo concepts for you (depending on the package you choose). After selecting the final iteration, the corporate identity and other elements are created.
